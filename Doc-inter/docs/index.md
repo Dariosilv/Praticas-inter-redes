@@ -1,0 +1,1 @@
+![Alt text](https://img.freepik.com/fotos-gratis/os-executivos-de-negocios-que-discutem-sobre-o-portatil_1170-1854.jpg "a title")
